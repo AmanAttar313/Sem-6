@@ -1,2 +1,2 @@
-# Sem-2
+# Sem-6
 ALL OF SEMESTER 2 WORK IN THERE
